@@ -1,3 +1,1 @@
-![](https://media.discordapp.net/attachments/1140666725948461096/1238230785048314006/Screenshot_2024_0510_011507.png?ex=663e87c8&is=663d3648&hm=0d9f8a1cffd347d786ee534b27914e27ac7fff3e9c3f89f0de8e9e8785392099&)
-
-Ahahahaha! Amazing, miss Sara. You're a prodigy at seizing people's hearts! Shameful, the rest of you. The riffraff. Don't you value your lives? Don't you doubt when others are kind? Do you not even have brains to think for yourself? Death is just a matter of time for you! That's the way weaklings live! Hahahaha!
+![](https://64.media.tumblr.com/1091116bc44131712ffa7c565c5d3525/9ae5a34a86b442c9-03/s250x400/9cfc848d27330900e30d93fd59610462e7f94c35.gifv) 
