@@ -1,2 +1,2 @@
 
-![](https://cdn.discordapp.com/attachments/1449979395635806289/1454220409313693810/Titelloses_75_20251226182649.png?ex=69504bcb&is=694efa4b&hm=d0fb220040ac9c9d2b9f7db30ca026f8c4fc08b95f7e9ee9c009be22af7e3b66&) 
+![](https://pbs.twimg.com/media/G4UaqLraMAATH_E?format=jpg&name=large) 
